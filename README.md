@@ -1,7 +1,8 @@
  Welcome to My Website
 
-Hi, I am Saurabh an aspiring programmer who is learning how to solve complex problem into simple one. 
+Hi, I am a web developer who is learning how to solve complex problem into simple one. 
 I want to convert the ideas into a product for better tommorow. 
+I am open to any opportunites and ready to relocate anywhere in the world. 
 
 
 Always ready to learn and collaborate to expand my knowledge.

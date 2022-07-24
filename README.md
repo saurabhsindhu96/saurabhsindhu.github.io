@@ -17,5 +17,5 @@ https://www.instagram.com/saurabh_sindhu/
 
 
               Contact
-              +917015511046
+              +1 604 781 8587
               saurabhsindhu96@gmail.com
